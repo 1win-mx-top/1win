@@ -1,5 +1,5 @@
 <h1>
-    <a href="https://1win1.mxt/">1win</a> México - Casino y Apuestas Deportivas en Línea con Bonos Exclusivos
+    <a href="https://1win1.mx/">1win</a> México - Casino y Apuestas Deportivas en Línea con Bonos Exclusivos
 </h1>
 
 <p>
